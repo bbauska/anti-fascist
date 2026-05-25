@@ -21,15 +21,18 @@ and state brutality destroyed democracy in Turkey and drove me into exile.
 
 1st>> I've seen the collapse of the rule of law firsthand and where it leads. 
 
-4th>> The ordinary people need a strong leader to direct them and guide them. Right now, the United States 
-is a dictatorship. After 250 years of independence, is the torch of liberty fading? Or will it refuse 
+4th>> The ordinary people need a strong leader to direct them and guide them. 
+
+5th>> Right now, the United States is a dictatorship. 
+
+1st>> After 250 years of independence, is the torch of liberty fading? Or will it refuse 
 to go dark? A single bullet deepened polarization in American society. 
 
-1st>> In September 2025, Charlie Kirk, founder of the right-wing youth organization "Turning Point USA" was 
+In September 2025, Charlie Kirk, founder of the right-wing youth organization "Turning Point USA" was 
 fatally shot while speaking at an event in Utah. A leading voice in the "Make America Great Again" 
 movement, Kirk was closely aligned with Donald Trump. Kirk's killing sent shockwaves. 
 
-1st>> In my home country, Turkey, assassinations are tools to crush dissent. US President Donald Trump wasted 
+In my home country, Turkey, assassinations are tools to crush dissent. US President Donald Trump wasted 
 no time, naming a culprit before the perpetrator was even known. 
 
 Trump>> For years, those on the radical left have compared wonderful Americans like Charlie to Nazis 
