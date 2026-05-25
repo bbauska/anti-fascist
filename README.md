@@ -1,5 +1,5 @@
-# Trump's America  https://www.youtube.com/watch?v=v6IgdiZwj0A
-by DW Documentary
+# Trump's America  
+<a href="https://www.youtube.com/watch?v=v6IgdiZwj0A">From DW Documentary.</a>
 
 1st>> The United States of America was once a promising dream for many. Now, for some, it's turning into a 
 nightmare. 
