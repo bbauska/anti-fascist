@@ -1,4 +1,4 @@
-# Trump's America - TOP DOWN - Democracy is just the opposite
+# Trump's America - TOP DOWN - Democracy is Bottom Up
 <a href="https://www.youtube.com/watch?v=v6IgdiZwj0A">From DW Documentary.</a>
 
 1st>> The United States of America was once a promising dream for many. Now, for some, it's turning into a 
