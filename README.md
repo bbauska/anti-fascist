@@ -1,7 +1,7 @@
 # Trump's America - TOP DOWN - Democracy is Bottom Up
 <a href="https://www.youtube.com/watch?v=v6IgdiZwj0A">From DW Documentary.</a>
 
-1st>> The United States of America was once a promising dream for many. Now, for some, it's turning into a 
+1st>> The United States of America was once a promising dream for many. Now, for some (almost ALL), it's turning into a 
 nightmare. 
 
 Trump>> The golden age of America begins right now. During every single day of the Trump administration, 
